@@ -1,4 +1,4 @@
-![Orange Minimalist Corporate Personal Profile LinkedIn Banner](https://github.com/user-attachments/assets/7649b7b1-224f-4860-932f-54f1b8bac960)
+![Orange Minimalist Corporate Personal Profile LinkedIn Banner](https://github.com/user-attachments/assets/b1188b01-0cae-4566-b613-eb51dc455403)
 <h1 align="center">Hi, I'm MEGUENNI-TANI Bilal</h1>
 <h3 align="center">A devoted developper from France, Marseille</h3>
 
